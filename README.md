@@ -6,6 +6,6 @@ Para su instalación, debéis seguir los pasos de este vídeo: https://www.youtu
 
 ¡No pinchéis en el link que os dice el vídeo! Ya que os he dejado el archivo .RAR/.ZIP arriba de esto que estáis leyendo.
 
-Mucha suerte y a disfrutar de Filmora.
-Atentamente.
+Mucha suerte y a disfrutar de Filmora.  
+Atentamente.  
 Alejandro.
